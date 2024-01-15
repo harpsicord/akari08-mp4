@@ -5,4 +5,4 @@ right now im learning how to use html & css to build websites - and will hopeful
 
 i love playing games and hope to make some :D
 
-check out my carrd! https://harpsicord.carrd.co/#
+check out my carrd! https://harpsicord.carrd.co/
