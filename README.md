@@ -1,8 +1,8 @@
 hi, im akari!!
-my pronouns are they/xem (xe/xem/xyr/xyrs/xyrself)
+my pronouns are they/them!
 
 right now im learning how to use html & css to build websites - and will hopefully learn javascript in the future!!
 
-i also really like writing and playing games!!
+i love playing games and hope to make some :D
 
 check out my carrd! https://akari-mp4.carrd.co/
